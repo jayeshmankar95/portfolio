@@ -23,5 +23,5 @@
 ---
 
 ## 📫 Contact
-Email: your-email@gmail.com
-LinkedIn: your-linkedin
+Email: jayeshmankar95@gmail.com
+LinkedIn: 
